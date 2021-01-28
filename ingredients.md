@@ -1,0 +1,9 @@
+-2oz/55g plain flour
+-8oz/225g caster sugar
+-2 eggs
+-3 tbsp. chocolate powder
+-2oz/55g butter or margarine
+-1/4 tsp. baking powder
+-6oz/170g bittersweet chocolate chips
+-1/4 tsp. salt
+-Confectioner's sugar
